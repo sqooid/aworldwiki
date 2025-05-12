@@ -1,2 +1,5 @@
+---
+draft: "true"
+---
 A manifestation of a higher dimensional universe that is created by fluctuations, it shows itself in a typical 4D universe as a shining, refracting polyhedron. The fragment will collapse after a short amount of time.
 Contact with the fragment by organisms will cause them to be sucked into the pocket of higher dimension and have their own existence drawn up to that dimension to varying degrees of effect. 
